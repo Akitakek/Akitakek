@@ -7,7 +7,7 @@ Had to name myself Akitakek because Akitake was taken 😢
 - 👯 I’m looking to collaborate: On things I'd use myself.
 - 🌱 I’m currently learning: C#
 - 💬 Ask me about anything!
-- 📫 How to reach me: Discord - Akitake#8008, Telegram: Akitake...
+- 📫 How to reach me: Discord - Akitake#8008, Telegram: Akitake
 - 😄 Pronouns: He/Him or They/Them.
 - ⚡ Fun fact: I'm self-taught!
 
