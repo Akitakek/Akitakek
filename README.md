@@ -11,6 +11,8 @@ Had to name myself Akitakek because Akitake was taken 😢
 - 😄 Pronouns: He/Him or They/Them.
 - ⚡ Fun fact: I'm self-taught!
 
+💡 I used to have projects but deleted them. I lost interest in them.
+
 ---
 
 [![Akitakek's github stats](https://github-readme-stats.vercel.app/api?username=akitakek)](https://github.com/anuraghazra/github-readme-stats)
